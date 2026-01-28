@@ -10,3 +10,5 @@ Regiment Retiree and a former staff of a number of Regiments. You may have known
 I honestly.. Am not on Ponytown often so if you see me, especially alone and not with friends, consider it a rare sighting LOL
 
 I hide and block freely and usually without warning, usually only temporarily but I may permahide/block if you do something greatly upsetting or if I have a personal issue with you.
+
+SIGN MY ATABOOK I GUESS: https://him0kim0ri.atabook.org
