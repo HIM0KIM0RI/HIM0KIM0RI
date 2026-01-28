@@ -4,7 +4,7 @@ The ponytown disease got me... they deleted my patreon and now im trapped here
 
 Frequently sitting at docks, feel free to say hi to me! I'm usually afk though so whispering will make me a lot more likely to see it. 
 
-PLEEAASE talk to me aobut my interests, if you recongize one of my skins and u know the media theyre from pleaseeplease talk to me about it
+PLEEAASE talk to me about my interests, if you recongize one of my skins and u know the media theyre from pleaseeplease talk to me about it
 
 Regiment Retiree and a former staff of a number of Regiments. You may have known me as OMORI, BASIL, Mikaela, or Starsong. If you see me attending a regiment event.. check on my mental health /JOKE
 I honestly.. Am not on Ponytown often so if you see me, especially alone and not with friends, consider it a rare sighting LOL
