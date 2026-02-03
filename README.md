@@ -14,5 +14,4 @@ I hide and block freely and usually without warning, usually only temporarily bu
 
 SIGN MY ATABOOK I GUESS: https://him0kim0ri.atabook.org
 
-![Steam Current Game](https://steam-current-game.vercel.app/api/?steamids=76561198060473183)
 
