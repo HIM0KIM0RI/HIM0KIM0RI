@@ -13,3 +13,6 @@ As of 2/2/26, I have 5,363.7 hours [223d 11h 42m] on this game.. I don't even pl
 I hide and block freely and usually without warning, usually only temporarily but I may permahide/block if you do something greatly upsetting or if I have a personal issue with you.
 
 SIGN MY ATABOOK I GUESS: https://him0kim0ri.atabook.org
+
+![Steam Current Game](https://steam-current-game.vercel.app/api/?steamids=76561198060473183)
+
