@@ -3,7 +3,7 @@ The ponytown disease got me... they deleted my patreon and now im trapped here
 
 ——————————
 
-Frequently sitting at docks, feel free to say hi to me! I'm usually afk though so whispering will make me a lot more likely to see it. 
+Frequently sitting at docks or at the four benches in the bottom right of the map, feel free to say hi to me! I'm usually afk though so whispering will make me a lot more likely to see it. 
 
 PLEEAASE talk to me about my interests, if you recongize one of my skins and u know the media theyre from pleaseeplease talk to me about it
 
@@ -17,3 +17,4 @@ SIGN MY ATABOOK I GUESS: https://him0kim0ri.atabook.org
 
 ![Steam Current Game](https://steam-current-game.vercel.app/api/?steamids=76561198060473183)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=212wkquxd4ybgp46dsyqx7qhq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=212wkquxd4ybgp46dsyqx7qhq&redirect=true)
