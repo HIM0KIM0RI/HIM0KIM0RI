@@ -20,3 +20,5 @@ SIGN MY ATABOOK I GUESS: https://him0kim0ri.atabook.org
 v Clicking on the Spotify playing below will take you to my last.fm! v
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=212wkquxd4ybgp46dsyqx7qhq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://www.last.fm/user/Monoki_h)
+
+[☆](https://pluralkit.xyz/f/sictc?l=pk)
