@@ -15,4 +15,6 @@ Not gonna make a whole DNI but I hide and block freely and without warning, I us
 
 SIGN MY ATABOOK I GUESS: https://him0kim0ri.atabook.org
 
+[☆](https://pluralkit.xyz/f/sictc)
+
 ![canto 9 experience](https://i.imgur.com/9dXG6cr.png)
